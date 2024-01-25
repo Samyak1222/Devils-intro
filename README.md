@@ -1,4 +1,4 @@
-<h1> <img  style="align-item" :"center" src="https://graph.org/file/b0825ba6490d2aa6a6afd.jpg" width="50px" height="60%"> Hᴇʏ ᴛʜᴇʀᴇ, ᴛʜɪs ɪs 𒐫⚡̶🇩̶Ꭼ̶Ꮩ̶Ꮖ̶Ꮮ̶ ̶ ̶🇽̶Ꭰ̶ ̶〇◉◦ᎧᎮ ᭄🇮🇳 </h1>
+<h1> <img  style="align-item" :"center" src="https://telegra.ph/file/8bfded5f818dc3c95670e.jpg" width="50px" height="60%"> Hᴇʏ ᴛʜᴇʀᴇ, ᴛʜɪs ɪs 𒐫⚡̶🇩̶Ꭼ̶Ꮩ̶Ꮖ̶Ꮮ̶ ̶ ̶🇽̶Ꭰ̶ ̶〇◉◦ᎧᎮ ᭄🇮🇳 </h1>
 <p align="center">
     <b>ᴠɪsɪᴛᴏʀs</b><br>
  -->    <img align="middle" src="https://profile-counter.glitch.me/Samyak1222/count.svg" />
