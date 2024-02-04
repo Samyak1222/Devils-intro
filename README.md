@@ -1,4 +1,4 @@
-<h1> <img  style="align-item" :"center" src="https://telegra.ph/file/8bfded5f818dc3c95670e.jpg" width="50px" height="60%"> Hᴇʏ ᴛʜᴇʀᴇ, ᴛʜɪs ɪs 𒐫⚡̶🇩̶Ꭼ̶Ꮩ̶Ꮖ̶Ꮮ̶ ̶ ̶🇽̶Ꭰ̶ ̶〇◉◦ᎧᎮ ᭄🇮🇳 </h1>
+<h1> <img  style="align-item" :"center" src="https://telegra.ph/file/8bfded5f818dc3c95670e.jpg" width="50px" height="60%"> Hᴇʏ ᴛʜᴇʀᴇ, ᴛʜɪs ɪs  ̶⚡̶🇩̶Ꭼ̶Ꮩ̶Ꮖ̶Ꮮ̶ ̶🇽̶Ꭰ̶⚡̶ϴ̶Ꮲ̶̶᭄★̶🇮🇳𒐫 </h1>
 <p align="center">
     <b>ᴠɪsɪᴛᴏʀs</b><br>
  -->    <img align="middle" src="https://profile-counter.glitch.me/Samyak1222/count.svg" />
@@ -26,7 +26,7 @@
 ## Connect with Me
 
 [![Github](https://img.shields.io/badge/-Github-181717?style=for-the-badge&logo=Github&logoColor=white)](https://github.com/Samyak1222)
-[![Telegram](https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white)](https://t.me/devillok1)
+[![Telegram](https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white)](https://t.me/your_devillok)
 
 ## My Stats
 
